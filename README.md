@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @ABCDEF-GK
+- The Script is for Stand
 - You can use my "GK Script" for free
 - You can also add your new ideals if you want share to me :]
 - OK,thats all!
